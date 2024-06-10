@@ -6,10 +6,6 @@ We have updated the dataset and will release the updated version shortly.
 
 
 
-tracking 
-链接：https://pan.baidu.com/s/1UviIHJNc8LaXVjDlKgSB_A?pwd=1234 
-提取码：1234 
-
 
 
 
